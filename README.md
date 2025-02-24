@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Front and Backend topics**
 
-- 📫 How to reach me **vinicius25bsantos.gmail.com**
+- 📫 How to reach me **vinicius2508@hotmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
